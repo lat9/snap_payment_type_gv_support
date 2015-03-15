@@ -1,2 +1,1 @@
-# snap_payment_type_gv_support
-Snap Affiliates: Pay Commissions Via Gift Certificate [Support]
+Welcome to the support site for *Snap Affiliates: Pay Commission Via Gift Certificate*, available for purchase here: http://vinosdefrutastropicales.com/index.php?main_page=product_info&cPath=2_8&products_id=58.
